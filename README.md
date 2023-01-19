@@ -1,0 +1,2 @@
+# DENEME
+GitHub'ı inceliyorum
